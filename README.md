@@ -1,2 +1,0 @@
-# lplovezyt
-lplovezyt
